@@ -29,6 +29,7 @@
 
 [_Course_Certificate_En.pdf](https://github.com/user-attachments/files/22760331/_Course_Certificate_En.pdf)
 
+<img width="1161" height="812" alt="image" src="https://github.com/user-attachments/assets/e75f0314-484f-4678-a05c-3e957829f4bb" />
 
 [certificate.pdf](https://github.com/user-attachments/files/22760366/certificate.pdf)
 
